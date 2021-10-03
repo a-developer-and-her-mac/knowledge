@@ -23,3 +23,5 @@
 - "It's never too late to be what you might've been.” –George Eliot
 
 - “If you can dream it, you can do it.” –Walt Disney
+
+- There is no shortcut to any place worth going. 
